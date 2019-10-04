@@ -1,2 +1,0 @@
-# justindluna.github.io
-Portfolio
